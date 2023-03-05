@@ -6,7 +6,7 @@ You can find me online at these places:
 
 - [Itch.io](https://papa-crub.itch.io)
 - [Mastodon (via peoplemaking.games)](https://peoplemaking.games/@papa_crub)
-- [YouTube](https://youtube.com/@papa-crub)
+- [YouTube](https://www.youtube.com/@papa_crub)
 - Discord @ **PapaCrub#1814**
 
 I hope to see you around on the interwebs and feel free to hit me with a message for any reason!
